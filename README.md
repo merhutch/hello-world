@@ -1,2 +1,2 @@
 # hello-world
-Git her done
+I'm a lady who travels the world looking for the next big challenge. 
